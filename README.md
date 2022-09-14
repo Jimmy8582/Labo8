@@ -1,1 +1,1 @@
-# Labo8
+# Jimmy Nguyen(c) Labo8
